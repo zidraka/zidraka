@@ -1,4 +1,4 @@
-# Hi there, I’m raka zidra 👋 
+# Hi there, I’m Raka Zidra 👋 
 Perkenalkan nama saya Raka Zidra Zilia Putra
 
 Saya Seorang Mahasiswa Teknik Informatika di Universitas Gunadarma.
